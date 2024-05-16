@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: https://prince60709.newgrounds.com/
 - 😄 Pronouns: they/them/theirs/it
-- ⚡ Fun fact: uhhhh idfk ur mom is a guy ig
+- ⚡ Fun fact: ur mom is a guy
 
 <!---
 Prince60709/Prince60709 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
