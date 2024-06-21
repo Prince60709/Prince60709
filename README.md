@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Prince60709
 - 👀 I’m interested in video games and cartoons
-- 🌱 I’m currently learning blockbench and godot
+- 🌱 I’m currently learning how to use my computer to make cool stuff
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me: https://prince60709.newgrounds.com/
 - 😄 Pronouns: they/them/theirs/it
